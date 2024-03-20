@@ -6,6 +6,6 @@ Group Members
 
 2. Bradley Yaman,
 
-3. Abdullah Malik Korkmaz,
+3. Abdullah Malik Korkmaz,20230040342
 
 4. Rina, 
